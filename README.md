@@ -1,0 +1,2 @@
+# premium-lacquer-japan-001-urushi-lacquer-application-pla
+Tired of ruining months of work because you forgot to log a curing layer or the humidity spiked at the wrong moment? The Urushi Lacquer Application Planner is the only Notion template built specifically for the unforgiving rhythm of urushi—so you never lose a project to environmental chaos again.  This template eliminates guesswork by centralizing
